@@ -27,7 +27,7 @@ sekarang karena script sudah ```diinstall``` tinggal kita jalankan, ketikan peri
 
 <h5 align="left">LOGIN COOKIE:</h5>
 
-- Notice me: ```Jika belum tau cara mendapatkan cookie Instagram``` <a href="https://youtu.be/VrGZdY5L19k">klik disini</a>
+- Notice me: ```Jika belum tau cara mendapatkan cookie ``` <a href="https://youtu.be/VrGZdY5L19k">klik disini</a>
 
 
 <h5 align="left">informasi:</h5>
